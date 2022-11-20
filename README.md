@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collaborate on flutter projects and developer opportunities.
 - i have A portfolio of built products, designed, developed and deployed.
 - 📫 How to reach me obasitonyc@gmail.com
-- +2348122213751 {whatsapp}
+- +2347062466015 {whatsapp}
 - Website: www.rilatech.co
 <!---
 bashtoc/bashtoc is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
